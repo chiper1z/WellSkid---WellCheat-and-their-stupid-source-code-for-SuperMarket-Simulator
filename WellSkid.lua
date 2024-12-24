@@ -1,7 +1,5 @@
 -- fuck them  niggers
 
--- dont even know a good obfuscator
-
 -- kys
 
 -- WellCheat More Like WellSkid!!!!
